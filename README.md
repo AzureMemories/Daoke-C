@@ -4,7 +4,8 @@
 
 **分享原因**：希望与对喜爱编程的人共同成长。
 
-___One day we'll leave this world behind.So live a life we will remember.___
+___One day we'll leave this world behind.  
+So live a life we will remember.___
 
 **笔摘者的话**：
 
